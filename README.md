@@ -1,90 +1,30 @@
-PK     ! Я¤ТlZ      [Content_Types].xml ў(                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  ґ”ЛnВ0Eч•ъ‘·UbиўЄ*‹>–-Rй{Vэ’ЗјюѕQU‘
-l"%3чЮ3VЖѓСЪљl	µw%л=–Ѓ“^i7+ЩЧд-d&б”0ЮAЙ6Ђl4јЅL60#µГ’НS
-OњЈњѓXш Ћ*•ЏV$zЌ3„ь3ачЅЮ—Ю%p)Oµ^ “ІЧ5}nH"dЩsУXg•L„`ґ‰к|йФџ”|—PђrЫѓsрЋ?PWЋмtt4Q+ИЖ"¦wa©‹Ї|T\y№°¤,NЫафUҐ%ґъЪ-D/‘ОЬљў­XЎЭћя(¦Ќј<EгЫ)‘а ;зN„L?ЇFсЛј¤ўЬ‰ё<FkЭ	‘hЎyцПжШЪњЉ¤ОqфiЈг?ЖЮЇl­Оiа 1йУ]›HЦgПхm @ИжЫыmш  яя PK     ! ‘·п   N   _rels/.rels ў(                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  ¬’БjГ0@пѓэѓСЅQЪБЈN/cРЫЩ[ILЫШjЧюэ<ШШ]йaGЛТУ“РzsњFuа”]р–U
-ЉЅ	Цщ^Г[ыјx •…јҐ1xЦpв›жцfэК#I)Кѓ‹YЉП‘ш€НАе*Dце§i")ПФc$іЈћqUЧч~3 ™1ХЦjH[{Є=Eѕ†єО~
-f?±—3-ђЏВЮІ]ДTк“ё2Ќj)х,l0/%њ‘b¬
-рјСкzЈї§Е‰…,	Ў	‰/ы|f\ZюзЉж?6п!Yґ_бoњ]Aу  яя PK     ! љ:тх  їI    word/document.xmlм]ЛЋгёЭИ?ТЙ4bЛ’mЙн»У]Џ™
-’ Р5і
-‚-QЏ)ITHЪng•э¬‚d“l‚¬ѓьФ|A>!$%?ЄlU№Єє §|Р@»LYЧјG‡—ч\СФ—п>eicF№HX>jЪнNіAsџIЌљЯ~sЮ4B’< )ЛйЁ№ ўщnьУџ|9Мџf4—
-e"ГyбЏљ±”ЕРІ„УЊ€v–шњ	К¶П2‹…aвSkОx`9»cю*8у©кыNH>#ўY™у?нg-аd®NЦ{–.й§µ
-ыБFъЦk°mИy„!еЎco›к>Ш”kй^mк=КђкХ–Ґюг,нpО}њ%gЫ’ч8KЭmKѓЗYЪўS¶MpVР\П€Toyde„_O‹–2\™L’4‘eіг.Нђ$ї~DЏФY+Y7x°ПКX@Уn°ґВFН)П‡Хщ­ХщєлГтькeyЯЗят”У*8П-NS…ЛEњ«ћ=Цљ:/ЌМоrb–ҐЛПН{ПбRћNK(Ччй~…––=їЫўЭЩгЉh«3цйВНп\ц$S,\сЈ Щ ЧЮ3Ђ,
-8[\џор—6•
-Л_ЏPm'Щsh,н”WEЫIЦАЪ{Ж±ЫќЩ0 иГLф—э‹lГЈ"zmївlZ¬­%Oіv±Bsќ<АVEяН!)ћЦ™«*6eюр"К'“TхH‘№ЎшШ0W@яЇ.«~1ТO
-љc•ѕLX°РЇ…:Т„“Ењ®}~vn;*лС­*шKЭкћzзѓУ~OµUЄ|5;ќs»Ы·OWM§4$УTn1Ц/№~бХЛ9ЛҐPgб'кRњ°)O(oьЋОµќш}.¶[}qіЙТ–|–2®ОHЄТ¶чNЗ9)€?-[{Щrўїтf[,›ь”nѕG›5ЙT2э6LRuфЬ;nL[•ЦЪ©Ґл—ь–Ч/ИЭщPЋ5I…b©O2ЦЋO'SA№ЇјS“’ЎjЗфlТл{Фчµ=Зъ“®нёЅ7o€„zћнЪNhїйy=Џ:Nz®лN0!4-wайЇЫ%Nи„ћзЁS\EZхoаЪкГ}—:Фнє]'t]ЇЇЏЁПo ?ЅхЙ@qЅ®зz.QзЇгzЪ-Y:W^ЙнафПlЫнџЭg'эо‡оЌаt{®*wЌЂ—Ж `CQ_Е›‚SE…mЋ_Ґтml7n@¬АеЊ…g\чU.
-u‚(hљ^I•Y–]yЃшЊIљDщ^@њеБЛ…aФдШW1’r°Ўщ*’oA9ю:9z2мћAnПw9~E#FЯ^4О2ц}Ібыцню­Ц`Бящ—ап‹єРїD– јїшy†@°W 8Jzњ&Yў<Dв ……Ы;Т‡фvЭс	ЇЮѕРлr‡
-мb CBnў hpШ4Њ4$К{!ХAРdwZЉhпх)y’G`	ДCG:Ј)+0гЂ$х$	9CьЁеЗ‡iћђЈзHU‚иўq¬=}ћ(ЈiU Ф VІ„µ’Rа„\0E‘†а„'фnMЄ*ё_.$Хkф®YF8ќ™EyQ\М|лќ^«—“ЊЋ‚тЋТ„д~LgЇHVјMЙ„¦ЈKОФЧТџ9ќYBзВ)»ХЎ^вљ!)…)‘MLYfКBђВ„ePё9°АЉfГZM^VХt¬=}ћ	Є	Є	“TУп/›Щwµч1§!ЁІ“*k%UюРЙ)ѕ`­ЊT-­ўTK-ЙY/·4µ”BЅ)Еv~ј=ЈЬ§i›E­2ѓѕ‚ѕВФ¶ЃфХN}eдЃТBOџL)(-(-LGPZPZџ—*PZ{(-9O¤¤ЬH-hнЅт.ў€1o
-“”дЧ ГЄТN`=„aџх
-§¶€љўќ°еTc…,MЩЬz—І€ЌЄЖНUЊ·dL[DS’це83Ўф‚ћ~^RнЋb­#Ыеoя9ьСуLуf9ѕшсПЗo‘@ђZ‚шSОi.УH’Ф‘dОш5~
-ЉЬA–ѓ»Щс{РCЋй'К}‘P– †Ф–Bт ф =киQpвЛД§аИnЋdAУрїШ±РІЪурC№РЛ:i]Е„­чБLµР хk’O	_ґ”Э/nб{Ђ ®±@№н°Iylе¶їюырG¦Ёg#АЧlЋЩ	фЁ]~ВА°ЈЋњ?A@ђ:‚dђ>5мxэ:%вљHТйEIR-z@]–ЕF•5”Y¦ЫйэЉLfнIфъх-¬Њµ_Pѕ‡M°гRѕ?юг_‡?xђљ<Ых?џжh@Џ:z„ДЗ*ЧЪЬхQЮы!!¤–€ЯvаЎЪы€1¬@ьЁећЬ±‚…ЋгмйуD<™p5°°›‰Ѓї.ЧЮc7н;ћN_qВтњў
-‚µћ"уDвю?шQЛЬя—г!vђB@@<Q †dЗ-н=6ќ¬%Йzc°°ьЕYµµx[пoHbыIѓІ н=¶џ40`ыЙ
-0°э$*@P‘чБЂщC{пУ\b9CMёhЮЬ®–“y»ЬaЄ>а+Зxе3ЁH<MѓлпI’Я~І§$Иh+ў9еD2neDиMn•e+ЙHD…•(SВєb~BR+T}0vЭі	oЇђн"Z*A€pµ;»ЃNЮаJL“(FдЁ+µt; ‰ц~ћёa®з—^gkыф[° ЯkPW?тpЏєъэuх$’DњdFµTї^пa"РЮЈ®^в ҐЎЅG]ЭАЂєъЁ«Ј®Ћєъ}0`юРЮЈ®np8њєъ:хEa}°ђоЦ)&hЈM¦ –z'YPK-i‚ZЄЃµФCїBx,(ф<Еxlb`ґ°ЃZX{Џ_*iЯ±‰AДoHMµ@?zN Z?Ѓа1n G==ѕa,EьАFяwъ @@Ь@т 6bНРА"ї%U°ИЇ–*лЫ©ущј=п
-?Ц9’№Ќк7(ґчXгWв0j~:`‘ЯќSЖP?N1Eґ@љЄЅП™J>(зXХUХІM^
-f`]°Ў¦V№з:їЂОКЕzХЛЕ|eЈ/bВ‹кҐЕx%9I±Ћo]MAJ‹IК PЋD#¤ґµБ"Ѕz†”+чА¬шЅџ&f}§ЙЃ-іАeЪ5yP¦ЅїL0™SЩОџ3БВ2FрСЮЈL[вЂ2­ЃeZ
-rZ”iЎЂQ¦} (УnўЃ2ну–iUBЫRнтuUЁmН2В±ҐйЉЉЁШbѕЄP(e ІЫZЉ b[ПTl—,AЕц>љ b[OTlч[X›-ДS”jWДA©¶ДҐZJµ$і(ХBъўTы ,PЄЭDҐЪз-Хf‹[рѕ<ьRепGљ”Уа’Dф§дЪ­AVех–ЙоQёFбічЅ(±‚(ЌTї–!Ё[Ч3uл%KP·.qЁ/Qc§Тгнй“ie6ВS\ -пџ“0…ѓ­© q*°5ХзF%Єz:KхT!‰не>MЫ¤(,R$–dE+%y$ЮйbUN2:Єћз\=·шЙЉ·"fупL•j$щ”љ¶”щ$Ґ#љ—пИ‚MеИg™к“D]F-р1Л psLЃ›OвЂђ:Ъћ>™Gk!Ґ'!D9О'[MЊ!¬+  ¬!¬!¬пѓIЄцЏG58|&iэxA
-х\†&Ёg&ѓФ3Ф3zЉЫђПФФФТ}0 )ЃZzљZТЛѕ+СSО®§J3™тF4нLРDРD?(@=D©яу%Ф——є“\$БЗQіУqє=Ч4
-jС•ой\хЮ~УqЌыкowР”],ўЯѓ)+T{ПцфGё^)»~;aRІlэ^ЇVYї‹UT®йuЖ!ЖдЖЫh*НЫО
-PЌR\хgLsАьЇxўБJ“њ^&ТWЅмєж$kйўщsВ‚…щCќ2НФ|5ю   яя PK     ! ЦdіQф   1   word/_rels/document.xml.rels ў(                                                                                                                                                                                                                                                                  ¬’ЛjГ0Eч…юѓ}-;}PBдlJ!ЫЦэ E?Ё,	НфбїЇHIлР`єрr®sПЂ6ЫПБЉwЊФ{§ ИrиЊЇ{Ч*x©ЇоAkWkл*‘`[^^lћРjNKФхЃDў8RР1‡µ”d:4e> K/ЌЏѓж4ЖVm^u‹r•зw2NPћ0Е®Vwх5€jш¶oљЮаѓ7o:>S!?pяЊМй8JX[d“0KDђзEVKЉР‹c2§P,ЄАЈЕ©Аaћ«ї]ІћУ.ю¶Жп°sёYТЎсЋ+Ѕ·Џџи(!O>zщ  яя PK     ! xяуЬй  Ф      word/theme/theme1.xmlмY[‹7~/ф?уош6гK€7Шc;·Э$d7)yФЪтЊbНИHтnL”д©/…BZъР”Т—>”Т@SJKяВю‡…„6э=ТШћ‘-7MІЃPvl]ѕsфйњЈЈг™sзпЖФ9А\–ґЬт™’лаdА†$	[оНЅ~Ўб:Bўd€(KpЛќaбћЯърѓsи¬ЊpЊђOДYФr#)'g‹E1Ђa$О°	N`nДxЊ$tyXrtzcZ¬”JµbЊHв:	ЉAнС·G?эvфД9ъ>®ЌFdЂЭ­Е"=
-‰j`@щ®Z/$їОАГqY}‰™(wm№°ађоб»Тu(&ZnIя№Е­sЕҐ•dsr}э7—›З-ЗГэҐ зщ^­ЅФЇT®гzх^­W[кУ 4АVS.¦Оz%ржШ(mZtwлЭjЩАзфWЧрm_эx
-J›ЮѕЯ2ж@iУ_Гыќf§kкЧ ґY[ГЧKн®W7рQ’ЊЧР%їV
-»]BFЊ^ґВ›ѕЧЇWжрUМ…W*џИЌБЈ;ЊчЎЅ‹$I9›а 0@”мsвl“0‚И› „	.UJэR>Хї§[ЪҐи,F9йth Ц†!G8™И–{ґє9ИуgПЋ<=~рЛсГ‡З~њЇЅ.w%a^оеwџээшcзЇџѕyщиs;^дс/~шдЕЇь›ziРъвЙ‹§OћщйџЯ?ІАЫнзб{$ЖВ№Љќ,†
-ZАыьх$ц"Dтн$(AJЖ‚оЙИ@_ќ!Љ,ё6нx‹Cѕ°/Lп„w#>•ДјЕp‡1ЪaЬє§+j­ј¦Ih_њOуёШЦVјЬ›N р‰Meaѓжu
-.G!N°tФcl»M€aЧ2аL°‘tn§ѓ€Х${dЯ€¦Lи"‰Б/3Aр·a›ќ[N‡Q›ъ.>0‘p6µ©ДФ0г4•(¶2F1Н#·‘Њl$wg|`\Hрt€)szC,„MжџtЇ@љ±»}‡ОbЙ%ЫђЫ€±<ІЛЖA„в‰•3Iў<ц’C€"з:“VМ<!Є~@ЙFwЯ"Шpч«ПцMHCц Q3Sn;™зqFGЫ”·yl¤Ш6'ЦииLC#ґ·1¦и
-1vn^ІбЩД°yFъrYе"¶Щж22cUх,°Ј«‹c‰0Bv‡lџќЩJв™Ў$F|“ж«c3dzpХЕЦxҐѓ±‘J	W‡ЦNвљ€ЌэmФz=BFX©ѕ°ЗлЊюы/gdојЃ~mHмяЩ6{€dі‡ К°Ґ[1Ьџ‰Ёг¤Е¦V№‘yh37WЉћ$Ї¬ЂVjяЭХ>Pa<як±{2хЋш6•О¦dІZЯlВ­V5гCтю5]4M®cёG,РУљжґ¦щЯЧ4›Оуi%sZЙњV2v‘wPЙdЕ‹~ґxТЈµД›ыЊҐ»rFс¶РuЏЂГ?мГ оh©еc¦IНщz.дH·ОдGDF»љА:eЅB(жЄCбLЂКI[u«	:ЌwШ0-—O6A Йl*ЇЕ8Фi2­ХіGxKхєкg­JцuHд3IT-$к‹БWђР;;M‹†Rї‘…юљ{n'©§гѕ—2‚xѓ*?Ґтпћё§7УЬvЕІЅ¦вz2ћ6HдВН$‘ГnЏХбцu3s©AO™bќFЅс.|­ІИJn ‰ЩsбМU}P3@“–;‚ЯLРЊ' OЁT…hґЬЃњъM2Л„ЩE"Jaz*ЭL$ж%1ДzЮ
-4Йё•+uµЗч”\іфюYNеќЊG#<ђFІ.МҐJ¬іo	V6Т»СрРЩ§S~ЃЎьzYpH„\ZsHx.ё3+®¤«щQ4ЮёdGСI„ж7J>™§pЭ^ТЙнC3]Э•Щџof?TNzл[чХBj"—47\ кЦґзЏwwЙзXeyЯ`•¦оХ\Ч\дєM·ДЫ_9jЩb5ЕШB-5©ќ`Aђ[nљ›о€“ѕ
-VЈV]‹ВRчЦЮmіэ;щ](W§T
-M~¶p,^J¦™@Џ.ІЛ]йL9i№чJ~Ы*~P(5ь^Б«zҐBГoWmЯЇ–{~№ФнTоѓQd—эtн>ьЪ§іщ+|=ѕц?^ФЪg,.2]µ°~Ќ_®ЇсУчОћљw–№W«ф›Хf§VhVЫэ‚Чн4
-Н Ц)tkAЅЫп~ЈЩїп:мµ«ЃWл5
-µrјZIСo4uЇRi{хvЈзµпПm
-;_|/М«ymэ  яя PK     ! <ь‡	  „     word/settings.xmlґVЯoг6~°я!р{Ы±УВ»фР$Лµ‡f7\:Ш›lЛ‰Pэ‚$'Н
-ыЯGIVњ®‡CЪЎ/‰ДЏьH‰йџм°ТDрi”\ДС уJФ„o¦СЛбU4РсQБс4:`}јющ§ыBcc@MЂ‚л‚UУhkЊ,F#]m1CъBHМl„bИАVmF©ЗV+Б$2¤$”Г(ЌгIФС€iФ*^tCF*%ґhЊ5)DУђ
-wБBќгЧ›,DХ2МЌу8RB‚л-‘:°±·Іё
-$»bЗhРЫ'сЗЭU-О	ПH%*¬5$€С бЅгмССчшоЋиЁА<‰Эк4тьuй‚I…џ^ЗqХqЊАт”‡ФЇг™yH±ЙдmБњhь:Љ<ДЎ¬?‘¦здШCч¤THщФ%UЕЭ†…J
-б@ўђ«Ѓ‹ОюВ‘нџ[‚ПkxИЯ„`ѓ}!±Є љЎДq4І ФђhЦ°,ґД”є¶PQЊёЧЁqѓZjP№6B‚ЦAф—с•‡·№ЕЬ=Ії }<KsЏW[¤Pe°ZKTч\pЈ
-zµшM9ґ
-•ЬYёЖСЇЦѕ	ЃGОы¬±¬D
-]b_ґЉњџkај'!Ип:Р4©сѓЅзµ9Pј„аЧдѕбхзVЊодя#‚ ч
-ћї@e<$^bdZё¦wrж2±¤D®€RBЭс*еЭњ‘¦Б
-Ёј”QbпощЈfХ;щm5ю”бaЋ ,gВБnы~»_ч F§е·ЦaсUsTЌУq6I»dСsђe2О“EзҐгf…ќIї«°І:`ЮbЋX©¬мФYЌR=Оx‰ЎЩаSdЭ–= ўt	W wLVФDЛnЬљ®ђЪфјќ†ъ®єЙз#—нEX}Rў•Э+$}б•$Л:KВН=aA®Ыr¬8ґЗЁех—ќrчФ_Пѕ0ђHчЂп‘+›бмSW0T­mІс
-Iйk¦Ь$У€’НЦ$6Нv5|ЬёM№I;,uXк1·A•=hw‹^–Щ‰Ю8ИЖЅ,І¬—еA–чІIђM¬z1VРАЎ|ГТКA©Шгъ¶З_€ь%и-’xб;>”—р‚nиБ®АO0=pM|3JR3фd‡I:±жќ6EСљgєіКт9CЌкми™±+сяДb'QE ЧVцдВN‰†З.aЦЎц‹Г’¬ЁEuggbжеyr•НyкбЬН(гъдэ+nfHгєГ‚iоMяО&0‡“ЩЇГ«d±fq6О’Л›aљNвq’Я$щетџо‘†Пзл  яя PK     ! kш+lj  ђr     word/styles.xmlјќЫrЫ8†п·jЯЃҐ«ЭG–rвgКv’±kмЊ'І'Ч	IX“„–цй )	rмсMbъ€M‘Т/їѕ$qрДі\Ифl0ъ°?xКH¤уіБГэ·ЅЏѓ /X±X¦ьlрКуБЇџящЏ_ћOув5жy  i~љ„gѓEQ,O‡Г<\р„ед’§кЕ™МVЁ‡Щ|°м±\о…2YІBLE,ЉЧбБююxPcІ.9›‰ђ‘a™рґ0сГЊЗЉ(У|!–щЉцЬ…ц,іh™Йђз№:и$®x	й3: D„™Ме¬ш ¦о‘A©рСѕщ+‰7Ђcа  Ж!Б1>ЦЊЎЉґ9"ВqЖkЋ€,Ћ_g,@Оq€гU?тЧDQћ^ПS™±i¬HJЈ@
-s`Аъ_Х[эџщSЅэіљ°‘їр+г"Чі»¬~X?2я}“i‘П§,…ёWэRрDЁv®ОУ\Ф+њеЕy.Xг‹эGг+a^XO_€H†єЕькЕ'џ
-VП\кl=іtѕzn:Я»шНоЙЩЂ§{эФTqП,Ы›њлАa}`ХяЦб.Я>2
-/Y(L;lVpеЕСx_CcЎ­pьiхаG©Зњ•…¬1Ђкя5vF\YTvRе
-х*џЭИр‘G“BЅp60m©'®п2!3•ОџL›кЙ	OД•€"ћZoL"в?<}ИyґyюПoЖЯхЎ,SхчбЙШМ‚8Џѕѕ„|©і…z5eZ“п: Цп.Е¦qюЯlT+СїаL§М`фaєЏBи€Ь:ЪffщжШН»P
-ѕWCGпХРс{54~Ї†NЮ«ЎЏпХђБьќ
-‰4в/•a3Ђє‹гp#љг0љгрљг°
-љгpљгиhЋcЈ9ЋiЉа2tНBkІ:f{;wчбЗЭЅ$шqwЇ ~ЬЭ	ЯЏ»;їыqw§s?оомнЗЭќ¬сЬj«\+›ҐEo—Н¤,RYр а/эi,U,SGТрфўЗ3’ѓ$АT™­^€{УBfпћ!Ж¤юлyЎј@О‚™—П{wњ§O<–K°(R<B`Ж‹2sЊ€ПњОшЊg<
-9еД¦ѓкJ0HЛdJ07—lNЖвiD<|+"IRXOhU?/ґIБ¤NXЙю]“Њ,?Ь€јяXiHpQЖ1'b}§™b†Хї60юҐЃБфЇ¦a`iF5D5Ќh¤jСЂХ4ўq«ж'ХёХ4ўq«iDгVУъЏЫЅ(b“вн]ЗЁы№»ЛXк3яЅы1у”©
-@яе¦>gЬ±ЊН3¶\ъ¬t3Ц>fl;2z
-о)Цґ5‰j_o¦ИҐ:j‘–эt‹Fe®5ЏИ^k‘БЦјю»UЫdЅA»ў©g&еґh4­!u2н„ЕeµЎнп6Vфџa|YNfѓf,Бю®·іZNЉМ·йeяЋmXэmх6+‘vЇFф2–б#Mѕz]тL•eЏЅIЯdЛgС'E&«№f[юАHТЙт_“е‚еВФJ[€оKэкљЃа–-{Р]МDJЈЫЧЅ„‰8 ЫA\ЭЯЮчr©ЛL=04АY2!cЦgях“OяMУБsU§ЇDG{NtzИА.Б"S‘dDDRЫL‘
-’5Фр~зЇSЙІ€†v—ск2ќ‚',YV›o©јш¬тБnИрюb™Рз…ЁLuOіNжеф?<мџкѕЛЂдМРeaО?љ­®‰¦ГхЯ&lбъoЊљjyРу—а`·pэvGu°—1ЛsбьХ›Guё+хсц/юjћЊe6+cє\ЙFp$B—IљS±б°бQ/б”1<‚Sr†ч[&"21ЊJ	Ј’БАЁ400Rъ_ЎcБъ_¦cБъ_«SБ€¶ Њjћ‘.яDџтX0Єyf`TуМАЁж™ЃQНіГ/џНФ&n‰±ђTsОBТ-4iБ“ҐМXцJ„ьу9#8AZСо29УчoИґє€› ©ПQЗ„›н
-G%тO>%лљfQц‹аЊ(‹c)‰О­m№}нЪ®0s'Gп.ЬЕ,дG<s“;VХЛ“к¶Њ·Э7ЭиtЪуFМE0Y¬ПцЫсюОИUБѕ¶»Б¦1Їоgi
-»е‘(“UGбНгГоБfFoнЮм$¶"Џ;FВ6З»#7»д­И“Ћ‘°НЏ#ЌO·"Ыьр…eЏЌб¤mю¬k<Зд;i›EлаЖfЫ&Т:Іi
-ћґНў-«зaЁ?-ЂкtуЊ;ѕ›yЬс№);№)ќ}еFґмzeЗ$MУЮък	ђчН&єSжьі”Хyы­њєЯФu­6NiОѓFОaч®¶ІЊ{;§7ўsЮq#:' 7ўS&r†ЈR’›Т97№ќ“”ЃОVpEАe+ЏЛV0Ю'[AЉO¶к±p#:oЬґQ!mФ;7eTоeTHA"РF…ґQбgTЏ3*Њч1*¤шRРF…ґQ!mT€@"РFхЬЫ;ГЅЊ
-)hЈBЪЁЃ6ЄЩ/ц0*ЊЗЖыR|Њ
-)hЈBЪЁЃ6*D Ќ
-hЈBКЁ ЬЛЁђ‚6*D Ќ
-hЈV·ъЖгЊ
-г}Њ
-)>F…ґQ!mT€@"РF…ґQ!eTоeTHA"РF…ґQН‡…=Њ
-гqF…с>F…ЈB
-ЪЁЃ6*D Ќ
-hЈBЪЁЃ2*ч2*¤ Ќ
-hЈBDЫь¬?ўt]f?Вџхt^±ЯэЈ«єS?м[№mФawФЄWnVч{.¤|o<<4хF7€ЖBљSФЋЏХm®№$хБз—нwшШфћ_єTЯa>3рЈ®‘ањКQЫ”·#A‘wФ6УнH°л<jЛѕv$XЏЪ’®секўµЃа¶4cЏбmЩЪ
-‡CЬ–Ј­@8Вm™Щ
-„Ь–Џ­Аг@'з·СЗЗiјѕѕЪ¦ЈE8qЪ¦%Фj•ЋЎ1єЉж&tUПMи*Ј›ЂТУ‰БлFЎvЈь¤†6ГJнoT7+5$xI
-0юRC”·Фе'5LЊX©!+µrvј¤©!К[j€т“.eX©!+5$`Ґо№ ;1юRC”·Фе'5ЬЬaҐ†¬ФђЂ•ј¤©!К[j€т“TЙh©!+5$`Ґ†/©Ж_j€т–ўЪ¤6gQ¶¤F)l…г6aV nA¶qЙЩ
-фЁ–¬hПjЙ"xVKP«•жёjЙНMиЄћ›РUF7Ґ§ѓЦЌB+мFщIЌ«–љ¤ц7Є›Ђ•W-9ҐЖUK­RгЄҐV©qХ’[j\µФ$5®Zj’Ъ?9»	^RгЄҐV©qХR«ФёjЙ-5®Zj’W-5IЌ«–љ¤о№ ;1юRгЄҐV©qХ’[j\µФ$5®Zj’W-5IЌ«–њRгЄҐV©qХR«ФёjЙ-5®Zj’W-5IЌ«–љ¤ЖUKN©qХR«Фёj©Uj\µt«BБW@M–ЭчЕ]±|Q°ю_Nшђf<—сЏЪCЅAерyлзЇ4ЫьЂћzЎЖLєu»RT}l
-4oјV$f~БJw"Ё¬юб*УЧъ“ЪЄ1[	Є™°юЪ*W+ы З7Тљf73mхоzм6SЅokXZ{Yи™ЭЦГ‘c *Oёъх©6щ®Ћ©nLгк'СФЧi¤ ПхПЃUЊ^X…RЇ_т8ѕeХ»еТэЦПЉкХСѕщJ‚7ЇO«oЧsЖg&
-;ГнОTлџessх}ыхх®Ў>hjsЎJЯQЮфkхWющя   яя PK     ! ЪЋ D  1     word/webSettings.xmlњТЭkВ0 рчБю‡’wM•)R¬ВЋБѕ`п1ЅjX’I\нюъ];u_м^Ъ\›ыq—Ьtѕ5:щЪњ
-ъ)KАJ,”]емнuС›°$DaЎСBОjl>»јVYЛ€‘v†„2#s¶ЋСeњ№#BXъYў7"RиWЬя±q=‰Ж‰Ё–J«XуaљЋЩЋсз(X–JВ
-КЌЫ|оA“€6¬•{­:G«РОЈ„ЁЈ<#”=0ѓ«И(й1`ыФМ®ў–ўфAЪ®ЊюFЭЂб	0–°нfLv§МcGЭњсБQЕ‘уїbЋЂ Э€СѕЋP›¦##і»•E/–љ$єЈ„Ћ9iбжIХ6ЇvIЫg4µиў2киЇ=V<o>УиФOцэбѕЌ„ЦX=?ЮRАяъм  яя PK     ! №Xk1  <     word/fontTable.xmlЬ”ЭnЪ0Ђп'н,Я—8!ь5T*©Тґ‹­} г8‰·ШЋм@анwм$”‰"‘MкЕ@зШюrОЗЏYў=7Vh•аpD0вЉйTЁ<БЇ/›»9F¶¦*ҐҐV<БGnсгту§‡f‘iU[л•]H–аў®«EXVpIнHW\Б`¦Ќ¤5\љ<ђФьЪUwLЛЉЦb+JQѓ€ђ)о0жЉО2БшНv’«ЪЇ/ЃЁ•-De{Zs­С&­ЊfЬZЁY–-ORЎN0ѕ IБЊ¶:«GPL—‘GБтђшћ,Я “aЂи0eь0Њ1п¬<з€tgzв€фЊуwЙњ,†фyШЈtI¶xО•6t[	ћНИѓ]Щє?Я…йЛnїўfЎЁ„+ZЉ­~ ўJ[ВШћ–	&Щђ	ґо“±kqа&І‚ЛДO\­ЪpFҐ(Џ}Ф6ВЪv 5+ъшћб’m‡¬Иa`g·$БлђhЅЩа6™@$ћ=u‘’j?ч]d|Љaћг/Г–Г<з4оґ.LјЙ-ъЖф]KЄ®‰ИLLА‡33dДxо #®ю#іщдCЊ¬фОnњ“+6f`аЮ[q6вA6¤N№yOG&<ЅЭE<ю?x®9z}Fk©^{]ћ:
-н¶З»:ЪэылТeЭ—п
-‰ЮЉэCH№.”ЬнБЃѕЉјЁЇоРшOЏЏ®c—ї  яя PK     ! е5Њn  с   docProps/core.xml ў(                                                                                                                                                                                                                                                                  њ’БNГ0†пHјC•{›tЄЪNґ“ђqЛok“(ЙЦхнIЫµc°7;юьЫщ“lv¬Ка Ж
-%sG ™вBnrф¶њ‡ч(°ЋJNK%!G
-X4+no2¦S¦јҐБ86рJТ¦LзhлњN1¶lµ‘'¤/®•©Ёу©Щ`MЩЋn O™в
-еФQЬ
-†zTD'IОFIЅ7e'А†*ђОв8Љс™u`*{µЎ«ь +б
-WСЎ8ТG+F°®лЁN:ФпгЏЕуkwХPИЦ+ЁИ8Kќp%>‡>ІыХ0ЧЏ‰Џ™к”)ьаќ
-V^f‡Ћ*­з;hjeёхэ™З8Xf„vю%{х‹O—Фє…Ъµ юРьфh{Dы7Љ¤#Ж4;Э/<рҐЅќCе=y|ZОQ1!“$$qђе„¤wУ”ђПvї‹юі`uZаЯЉѓ@oСе'-ѕ  яя PK     ! kЯQw  О   docProps/app.xml ў(                                                                                                                                                                                                                                                                  њRMOГ0Ѕ#сЄЮ·tCy™РвА—ґІќЈДm#Т$Jbя‡B)вЖН~¶џџ_›чЮoўvv].жUY •NiЫ®ЛзъfvQ1	«„qЧеc№б§'рњЗђ4Ж‚(l\—]Jю’±(;мEњSЩRҐqЎ‰ТР2Ч4Zвµ“Ї=ЪД–UuОр=ЎUЁf~$,ЖЛ·ф_RеdЦчхС‡{oDBюђ'Н\№ФQЁ]¦Ц=тЉа1Ѓ'Сbд`C TдgKкBШv"™ИAѕ<«џ pеЅСR$2—Яk\tM*?™ ШґиЉКЧ У1™¦p§-)И›‡€ґСб»ИWYаБN
-ѓ[2Ђ7ВDцАЦх^XвccD|/сЩЧо:{с5тњњyР©Ыy!і‹Еjzр¤;BQСЈ†Ђ[z•`тљµ-Єпћї…lб~шћ|q>ЇЄlсЈГЗГ?   яя PK-      ! Я¤ТlZ                      [Content_Types].xmlPK-      ! ‘·п   N               “  _rels/.relsPK-      ! љ:тх  їI              і  word/document.xmlPK-      ! ЦdіQф   1               Ч  word/_rels/document.xml.relsPK-      ! xяуЬй  Ф                
-  word/theme/theme1.xmlPK-      ! <ь‡	  „               )  word/settings.xmlPK-      ! kш+lj  ђr               a   word/styles.xmlPK-      ! ЪЋ D  1               ш+  word/webSettings.xmlPK-      ! №Xk1  <               n-  word/fontTable.xmlPK-      ! е5Њn  с               П/  docProps/core.xmlPK-      ! kЯQw  О               t2  docProps/app.xmlPK      Б  !5    
+https://camo.githubusercontent.com/02841a457ec7ae172cd5b3126499a1fdae771612f194747e22df7662d2dbaedf/68747470733a2f2f772e77616c6c686176656e2e63632f66756c6c2f7a782f77616c6c686176656e2d7a786737676a2e6a7067
+<h1 align="center">Hi 👋, I'm Dimitar</h1>
+<h3 align="center">a still a learning developer from Bulgaria</h3>
+
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=dimitarbanchev&label=Profile%20views&color=0e75b6&style=flat" alt="dimitarbanchev" /> </p>
+
+<p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=dimitarbanchev" alt="dimitarbanchev" /></a> </p>
+
+<p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
+
+- 🔭 I’m currently working on [exercsies and practice myself](https://github.com/DimitarBanchev/C-Sharp-Advanced-January-2023)
+
+- 📫 How to reach me **laskata04gmail.com or laskata0304@abv.bg**
+
+- ⚡ Fun fact **I can be a good developer**
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://fb.com/dimitar banchev" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="dimitar banchev" height="30" width="40" /></a>
+<a href="https://instagram.com/laskata4" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="laskata4" height="30" width="40" /></a>
+</p>
+
+<h3 align="left">Languages and Tools:</h3>
+<p align="left"> <a href="https://www.w3schools.com/cs/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/csharp/csharp-original.svg" alt="csharp" width="40" height="40"/> </a> <a href="https://dotnet.microsoft.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/dot-net/dot-net-original-wordmark.svg" alt="dotnet" width="40" height="40"/> </a> <a href="https://www.mysql.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/mysql/mysql-original-wordmark.svg" alt="mysql" width="40" height="40"/> </a> </p>
+
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=dimitarbanchev&show_icons=true&locale=en&layout=compact" alt="dimitarbanchev" /></p>
+
+<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=dimitarbanchev&show_icons=true&locale=en" alt="dimitarbanchev" /></p>
+
+<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=dimitarbanchev&" alt="dimitarbanchev" /></p>
