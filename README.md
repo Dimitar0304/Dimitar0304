@@ -1,5 +1,5 @@
-https://camo.githubusercontent.com/02841a457ec7ae172cd5b3126499a1fdae771612f194747e22df7662d2dbaedf/68747470733a2f2f772e77616c6c686176656e2e63632f66756c6c2f7a782f77616c6c686176656e2d7a786737676a2e6a7067
-<h1 align="center">Hi 👋, I'm Dimitar</h1>
+<img src=https://camo.githubusercontent.com/02841a457ec7ae172cd5b3126499a1fdae771612f194747e22df7662d2dbaedf/68747470733a2f2f772e77616c6c686176656e2e63632f66756c6c2f7a782f77616c6c686176656e2d7a786737676a2e6a7067>
+👋, I'm Dimitar</h1>
 <h3 align="center">a still a learning developer from Bulgaria</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dimitarbanchev&label=Profile%20views&color=0e75b6&style=flat" alt="dimitarbanchev" /> </p>
