@@ -10,7 +10,7 @@
 
 - 🔭 I’m currently working on [exercsies and practice myself](https://github.com/DimitarBanchev/C-Sharp-Advanced-January-2023)
 
-- 📫 How to reach me **laskata04gmail.com or laskata0304@abv.bg**
+- 📫 How to reach me **dimitar.sbanchevgmail.com or laskata0304@abv.bg**
 
 - ⚡ Fun fact **I can be a good developer**
 
