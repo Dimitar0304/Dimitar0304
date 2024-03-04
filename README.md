@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dimitar.sbanchev@gmail.com**
 
-- 📄 Know about my experiences [I learn in SoftUni C# Path and computer-aided design of technologies in mechanical engineering In TU-Sofia](I learn in SoftUni C# Path and computer-aided design of technologies in mechanical engineering In TU-Sofia)
+- 📄 Know about my experiences (I learn in SoftUni C# Path and computer-aided design of technologies in mechanical engineering In TU-Sofia)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
