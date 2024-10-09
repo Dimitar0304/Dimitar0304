@@ -51,16 +51,13 @@
         <img src="https://www.vectorlogo.zone/logos/getpostman/getpostman-icon.svg" alt="postman" width="40" height="40"/> 
     </a>
     <a href="https://www.atlassian.com/software/jira" target="_blank" rel="noreferrer"> 
-        <img src="https://www.vectorlogo.zone/logos/atlassian/jira-icon.svg" alt="jira" width="40" height="40"/> 
+        <img src="[https://www.vectorlogo.zone/logos/atlassian/jira-icon.svg](https://www.google.com/search?sca_esv=6438a53135bfba51&sxsrf=ADLYWIK1AH_eTZmMcGLzB0eoqKhW77xqLA:1728482374627&q=jira&udm=2&fbs=AEQNm0D0mdjV9iZmrIToWZfLy6hjiHLZlz0gO0cW40eqjD3LgTC_9I288s3dQhxfUDXs5Fh64FGxavo5glsqTygQ17zo5u5z-gmkJwHk96CuJucXHmdluPwYGcIpyynasv9IftnWJq-CfxpS_cad0RJd64zY0_BoK5ArRwSPBg01jRrMOCRHwSALX6-XKMwhPRWNubgHCdfCPqfrmwSM-EXYGxVfKhnPsPbd-f0c-EuCDsO_bpwPW8w&sa=X&ved=2ahUKEwjljMLPuoGJAxUe9LsIHdmOKSoQtKgLegQIGRAB&biw=1280&bih=599&dpr=1.5#vhid=rbAJI-AxwD6FnM&vssid=mosaic)" alt="jira" width="40" height="40"/> 
     </a>
     <a href="https://slack.com/" target="_blank" rel="noreferrer"> 
         <img src="https://www.vectorlogo.zone/logos/slack/slack-icon.svg" alt="slack" width="40" height="40"/> 
     </a>
     <a href="https://about.gitlab.com/" target="_blank" rel="noreferrer"> 
         <img src="https://www.vectorlogo.zone/logos/gitlab/gitlab-icon.svg" alt="gitlab" width="40" height="40"/> 
-    </a>
-    <a href="https://gitforwindows.org/" target="_blank" rel="noreferrer"> 
-        <img src="https://www.vectorlogo.zone/logos/git-scm/git-scm-icon.svg" alt="gitbash" width="40" height="40"/> 
     </a>
 </p>
 
