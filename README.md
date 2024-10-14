@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dimitar0304&label=Profile%20views&color=0e75b6&style=flat" alt="dimitar0304" /> </p>
 
-- 🔭 I’m currently working on course of DevOps Engineering 
+- 🔭 I’m currently pass throught course of DevOps Engineering 
 
 - 📫 How to reach me **dimitar.sbanchev@gmail.com**
 
