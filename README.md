@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dimitar0304&label=Profile%20views&color=0e75b6&style=flat" alt="dimitar0304" /> </p>
 
-- 🔭 I’m currently work with a small team in Cost-Efective Solutions program we developing a warehouse software and a RentACar individual app in Asp.Net
+- 🔭 I’m currently learning every day.
 
 - 📫 How to reach me **dimitar.sbanchev@gmail.com**
 
